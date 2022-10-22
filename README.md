@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **rooxy5698@proton.me**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: rooxy5698@proton.me</h3>
 <p align="left">
 </p>
 
